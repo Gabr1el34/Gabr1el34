@@ -3,4 +3,4 @@
 Eu Sou Josefa Gabriela
 
 - Estudante do Alura
-- Utilizo esse espaço para a organizaçao e compartilhamento dos meus projetos desenvolvidos
+- Utilizo esse espaço para dar a bunda
